@@ -66,7 +66,7 @@ Here are some of my notable works:
 
 ## 🙋‍♂️ Let’s Connect
 - **Email:** [himanshugaur684@gmail.com](mailto:himanshugaur684@gmail.com)
-- **LinkedIn:** [linkedin.com/in/yourprofile](https://linkedin.com/in/yourprofile)
+- **LinkedIn:** [Himanshu Gaur](https://www.linkedin.com/in/himanshu-gaur-153a43186/)
  
 Feel free to reach out for collaborations, questions, or just to say hi! 
 
